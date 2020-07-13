@@ -1,1 +1,0 @@
-# nurtasin.github.io
